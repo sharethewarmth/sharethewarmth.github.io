@@ -1,1 +1,1 @@
-# sharethewarmth.github.io - website for the Triangle Share the Warmth Initiative!
+# sharethewarmth.github.io - Triangle Share the Warmth Initiative!
